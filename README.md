@@ -1,1 +1,1 @@
-# SaintSeiya-Clonado
+# SaintSeiya-Remoto
